@@ -1,3 +1,3 @@
 Graphic Design Portfolio
 
-This Portfolio contains some of my works I did in university classes and for the football club. 
+This portfolio presents a selection of graphic design projects from my professional experience at the football club TSV 1860 Munich and at the creative agency Hanki Film as well as from my studies at the University of Augsburg.
